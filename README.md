@@ -15,6 +15,6 @@ Explore my projects, which reflect my commitment to safe and ethical tech soluti
 ### Let's Connect!
 
 For tech insights or just to share a good coffee and talk:
-- **Discord:** [@okbenito]([https://linkedin.com/in/benito](https://discord.com/users/1210357700798455868))
+- **Discord:** [@okbenito](https://discord.com/users/1210357700798455868)
 
 Thanks for stopping by! Looking forward to connecting! 🌟
