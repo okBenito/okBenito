@@ -1,6 +1,6 @@
 # Welcome to okBenito's GitHub 🌐
 
-I'm Benito, a passionate Tech & Cybersecurity Enthusiast 🛡️ and coder 👨‍💻. My work is driven by a blend of advanced technology and AI insights 🤖, with a personal commitment to Christian ethics ✝️.
+I'm Benito, a passionate Tech & Cybersecurity Enthusiast 🛡️ and coder 👨‍💻. My work is driven by a blend of advanced technology and AI insights 🤖.
 
 ### Interests
 
